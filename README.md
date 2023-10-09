@@ -1,1 +1,0 @@
-# medicalministry.github.io
